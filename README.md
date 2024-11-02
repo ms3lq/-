@@ -28,4 +28,5 @@ https://modsfire.com/EQ5T61k2y9R1XHr
 فورد 
 https://sharemods.com/apj9spk6yund/Ford_Crown_Victoria_V2.zip.html
 
-حقوق سيرفر Zomvl
+كروز
+https://sharemods.com/klqulh30jl9t/cruze16.zip.html
