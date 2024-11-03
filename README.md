@@ -127,6 +127,23 @@ https://www.dropbox.com/scl/fi/5t6ncexjbwtwdn5b7g6p0/MetoMaxima99.zip?rlkey=gukc
 لاندكروزر15
 https://www.dropbox.com/scl/fi/58s1wg75yn0rlu6epa35h/cruser200.zip?rlkey=aytj9rlfles9hwh257nneolnb&dl=1
 
+هلي على مستوى
+https://www.dropbox.com/scl/fi/lsiobbceuctds15bmjiiO/
+Abo3Zmh_hilux_v1.zip?
+rlkey=ys6pvhsp63rxrmouvsfgz87jg&st=mgjou4uq&dl=1
+
+اكورد2
+https://www.dropbox.com/scl/fi/h9y9ytn4jpkcivaquvzx
+8/AccordKenemation_modland.zip?
+rikey=sgvguxqnbOqa764v4up5cqp23&st=hgaOgjos&dl
+1=
+
+لكزس٣
+https://www.dropbox.com/scl/fi/5ry9arndyjitZissja8vb/l
+x570.zip?
+rikey=3owjbd6bo9xathqf1h6esiy8k&st=txblv1ig&dl=1
+
+
 وبس انتضرو التحديثات
 
 
