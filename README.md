@@ -140,8 +140,6 @@ rikey=sgvguxqnbOqa764v4up5cqp23&st=hgaOgjos&dl
 
 لكزس٣
 https://www.dropbox.com/scl/fi/5ry9arndyjitZissja8vb/l
-x570.zip?
-rikey=3owjbd6bo9xathqf1h6esiy8k&st=txblv1ig&dl=1
 
 اكسبدشن
 https://www.dropbox.com/scl/fi/jlvkyxqqwr8ogultyyydo/
