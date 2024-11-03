@@ -182,6 +182,41 @@ https://www.dropbox.com/scl/fi/vlo7xqbqc3i26difbpwu
 b/.zip?
 rlkey=vh49bfy4jktjgqevp6rrh15dm&st=dij8slx7&dl=1
 
+روز رايز
+https://www.modland.net/download/329001
+
+باترول
+https://www.modland.net/download/361842
+
+لاند ٩٩
+https://www.modland.net/download/362386
+
+ددسن
+https://www.modland.net/download/362397
+
+اكسنت
+https://www.modland.net/download/360288
+
+كيا5
+https://www.modland.net/download/352252
+
+هودنا سيفيك
+https://www.modland.net/download/353602
+
+باترول تفجيرر خالععع
+https://www.modland.net/download/362373
+
+سلفرادو
+https://www.modland.net/download/362380
+
+ربع
+https://www.modland.net/download/357322
+
+ماب هجوله
+https://www.modland.net/download/357327
+
+هايلكس غماره
+https://www.modland.net/download/350395
 
 وبس انتضرو التحديثات
 
