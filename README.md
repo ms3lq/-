@@ -2,6 +2,8 @@
 تجميعه مواتر
 هايلكس https://modsfire.com/a67KRq8VHwR3jQL
 
+معليش اذا فيه مواتر متكرره
+
 افضل مواتر عندي👇🏼
 
 كامري٢٠٠٤
@@ -565,6 +567,99 @@ Karoom123478 commented on Oct 5
 أوبتما 2013
 https://www.dropbox.com/scl/fi/kvpeq4anv1y6uhadbabz2/kiaoptima.zip?rlkey=iit9n5j6czy7z9sczwu0eox7i&st=xv2d9bin&dl=1
 
+ماليبو
+https://www.dropbox.com/scl/fi/q6o7cnv2kreugqq16pluq/wLi_Malibu2015.zip?rlkey=h1ak1qmppc16yli10ei0utfve&st=ba6uvcn5&dl=1
+ماب ٦
+https://www.dropbox.com/scl/fi/houvwgzx6atrdr68x8o8v/0Toxic_Street_v1_1.zip?rlkey=926q2gxq6yve6jeii242hjou3&st=pk2kmkzt&dl=1
+كامري ٢٠٢٣
+https://www.dropbox.com/scl/fi/qqz6rmai056hkzxi09sag/camry75.zip?rlkey=7k9ho2tvxcitzcmxnomdkw6s6&st=b8ia46ny&dl=1
+ددسن غماره
+https://www.dropbox.com/scl/fi/qsjd8gk5x5mq6f5avxziq/Nissan_Ddsen.zip?rlkey=m9hcwkzve8rz5z6cu1a3b4xbt&st=bqnxyam3&dl=1
+اكورد
+https://www.dropbox.com/scl/fi/s6vcp3rzqleromx128mb8/Accord2023.zip?rlkey=6tvtp7j5kti3mky99iewhzgds&dl=1
+كامري ٢٠٠٦
+https://www.dropbox.com/scl/fi/s8i9d22409xrgq4vzighb/Ali_Toyota_Camry_2003-2006.zip?rlkey=jxdws1wae596xbhmejf8x28c3&dl=1
+لاند كروزر ٢٠٢٠
+https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
+افالون
+https://www.dropbox.com/scl/fi/ygjxgsew4wl0du2197sx2/Avalon22ByFahadAndTurki.zip?rlkey=tn9w2l4iq9hqs0n8a0eb168ms&dl=1
+ددسن
+https://www.dropbox.com/scl/fi/6lnh08kz2q3itt2tohxp7/warning_ddsn_-AM_modland.zip?rlkey=7sttrlj5dszt13pykcq9srorp&dl=1
+هايلكس ٢٠١٦-٢٠٢٤
+https://www.dropbox.com/scl/fi/9ep1pmc7oicqhy1sdqgb3/Hilux_2016_KHwylD.zip?rlkey=l3bpwtkhjtg7vl4sdf1blgdqt&st=rq7kj7e2&dl=1
+سيرا ٢٠١٥-٢٠١٧
+https://www.dropbox.com/scl/fi/50hhwfrhvu0gvfmn6umtv/GMC-Sierra-2017-2015-V1.2.zip?rlkey=bdldxtts96idsqk255l9cwih2&st=fckbdx58&dl=1
+كروز
+https://www.dropbox.com/scl/fi/dcdbeasd1s8n12ntt3buq/cruze16.zip?rlkey=xccll7al4ehem9hjy5u9seq6o&st=dr4kfgrq&dl=1
+النترا ٢٠٢٤ - ٢٠٢٥
+https://www.dropbox.com/scl/fi/dm0pgeh3ontm2ucyyx8ln/Hyundai-Elantra-2025-2024.zip?rlkey=a69l08vhv617201728xwdvj1b&st=ijys3vkt&dl=1
+ماب ٢
+https://www.dropbox.com/scl/fi/m5ffp6bvriflpq8v8b0h2/wli_town.zip?rlkey=n24u0jcitjgk3fn0ud6iq9hce&st=5k2prgda&dl=1
+ماب ٣
+https://www.dropbox.com/scl/fi/6231wjyyp8c3258yhbto1/m7_town3.zip?rlkey=j88hyvs7hfs0uudghdtyroz08&st=49ggm6f9&dl=1
+ربع ٢
+https://www.dropbox.com/scl/fi/e98c5rtfiqkgc0j5gksqc/landsg.zip?rlkey=nsd3yeu6btvietd2bty2ej4j2&st=xe9dr86b&dl=1
+ماب قراند
+https://www.dropbox.com/scl/fi/8h0a620uv57dq5qc2wxjj/gta_v.zip?rlkey=r4h4gp6m8e4141b4vnwmculfl&st=ezjh0306&dl=1
+التيما
+https://www.dropbox.com/scl/fi/7sffw01wk4um2txggcrw0/l32.zip?rlkey=3593b0veg9qhsvgrwt5gif0wf&st=pb0vuur3&dl=1
+كامري ٢٠١١
+https://www.dropbox.com/scl/fi/uet9imuniuqj4x55ec09k/wLi_Camry2011.zip?rlkey=8nim22zikxmu9owzq3wbuvhzs&st=t51zi0ki&dl=1
+كابرس
+https://www.dropbox.com/scl/fi/jn0ad20k1og0ejwbwnzl8/CapriceFna.zip?rlkey=wwbtp6qd6y57s5hy9xlqv7aaj&st=dslmik30&dl=1
+كامري ٢٠٢٥
+https://www.dropbox.com/scl/fi/gsdwuiuqp4hd7hl94eu9x/camry25_by_Meto_and_iEviil.zip?rlkey=s5xjzk9azpd01nspi5r3v10ik&st=b5tl1ync&dl=1
+شاص
+https://www.dropbox.com/scl/fi/bf8pd65j3teakttrcylkz/warning_cr.zip?rlkey=gchdlho9j1uiwcxc52e9xcug2&st=ybstamud&dl=1
+شارع البراميل
+https://www.dropbox.com/scl/fi/qsjk67hdikzx90xbkkjuo/albrameel.zip?rlkey=drs2nsqnzu38j8jj4hq3cr3u7&st=mmvoirxp&dl=1
+الانترا ٢٠٢٠
+https://www.dropbox.com/scl/fi/bxis5i65o4f2602ajvzgg/elantraad.zip?rlkey=3eeu4w76ie2gm9dyezioojvbw&st=aahmtaod&dl=1
+كامري ٢٠٢٣
+https://www.dropbox.com/scl/fi/j2d0uix503ps28hy1njgz/camry75.rar?rlkey=gjpeewwbiyyk23ekr7gtvq2cp&st=jaapad66&dl=1
+بوالين
+https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
+ماب بر
+https://www.dropbox.com/scl/fi/7cxpjmold2r4yi6b50ps9/coralpink.zip?rlkey=qte8fcqp2eva0afn5km5a4tdl&st=njdsb067&dl=1
+ماب خط بر
+https://www.dropbox.com/scl/fi/zvowvq4ps22vuuj1l9n02/UAE_StreetDesart-v0.1.zip?rlkey=lzxvowerdmjttg6im2dhbvbei&st=v1tylhpf&dl=1
+ماب تصوير
+https://www.dropbox.com/scl/fi/5660i6iz51ry2dwnytrh9/Alley.zip?rlkey=xhfsumaqa8qjcd4yuifejwcm5&st=0tzqb3hi&dl=1
+ماب ٧
+https://www.dropbox.com/scl/fi/z0840oft5j8oxcq75zs1s/dayre_meto_v0.1.zip?rlkey=09gkh56tbvw3pkplvr5x5wcs5&st=r7a0tjz9&dl=1
+لاند ١٩٩٩-٢٠٠٧
+https://www.dropbox.com/scl/fi/3nbkfsx50rdvah716tkie/land-2007_1999.zip?rlkey=mmo2bhvvkmtslpyhew68kbjvw&st=v0chfn4w&dl=1
+ماب ٨
+https://www.dropbox.com/scl/fi/z0840oft5j8oxcq75zs1s/dayre_meto_v0.1.zip?rlkey=09gkh56tbvw3pkplvr5x5wcs5&st=wvlstort&dl=1
+كورلا ٢٠٢٠
+
+https://www.dropbox.com/scl/fi/fqz0w4tqnc76c07ohrak4/ToyotaCorollaE210.zip?rlkey=un96sjtvl785b168c2s82lrpm&st=9kvwr347&dl=1
+M4 بي ام
+https://www.dropbox.com/scl/fi/nqnt7dz0lf811ui7oig48/BMW-M4.zip?rlkey=9ieglp863ruodmkiwkmmsbfi8&st=jp8qooiq&dl=1
+تشارجر 2022
+https://www.dropbox.com/scl/fi/o459l0pl3eshjr90y8nbz/2022-Dodge-Charger-v1.0.zip?rlkey=0xsal7ffb1y0topc0oa5xqplu&st=1gn9akiv&dl=1
+هايلكس ٢
+https://www.dropbox.com/scl/fi/m8wxfq1a9lln1h3g92rk6/Abo3Zmh_hilux_v1.zip?rlkey=rx6nqt7q3f749xp3gchinwtwf&st=etmrtydx&dl=1
+هايلكس غماره
+https://www.dropbox.com/scl/fi/9ik354eaexkfxp4y1b8my/AM-hulix_1.zip?rlkey=ypu188ygpzz2e2k049rjqdz6m&st=wj2iqfiz&dl=1
+اوبتما ٢٠١٥
+https://www.dropbox.com/scl/fi/xyklnm5bheybvf1ftr1w6/KIA_OPTIMA_modland.zip?rlkey=yumjfuh90t2c1i07xm73tplke&dl=1
+وايت
+https://www.dropbox.com/scl/fi/oset543zulhgu72uunocs/Ali-Mercedes-1924_modland.zip?rlkey=r6yts6ozjliybcwrgisa3khcr&dl=1
+كامري ٢٠٠٢
+https://www.dropbox.com/scl/fi/l8trkmuf00v4tk8di3ybp/Toyota_Camry_xv20_By_AbdoHusyan-1.zip?rlkey=awczqdxg7v8wehbhz8lh5d0jy&dl=1
+مكسيما
+https://www.dropbox.com/scl/fi/5t6ncexjbwtwdn5b7g6p0/MetoMaxima99.zip?rlkey=gukcuw3fqernpmzdf0chx85x7&dl=1
+ماركيز
+https://www.dropbox.com/scl/fi/9wyx2zsihi243n584e8an/Mrkez_rcqk.zip?rlkey=eosdzti40papqp3n8zv80ewvh&dl=1
+جنسس ٢٠٢٠
+https://www.dropbox.com/scl/fi/qf6fo7s02b0f6b544qwoj/2020-Genesis-G90.zip?rlkey=sjz2hytb4ir2a92bbpzvq1lw6&st=tyvds0jb&dl=1
+كيا ٨ ٢٠٢٣
+https://www.dropbox.com/scl/fi/8hz01u1mpaauwm3rhq74g/Kia-K8-2023.zip?rlkey=5ckvpc51vw18hqsk2limemdf2&st=a6ewmx8h&dl=1
+كامري ٢٠٠٤
+https://www.dropbox.com/scl/fi/sp6rjdmfow5dj98ueupi4/Toyota-Camry-2004.zip?rlkey=m1eqw1johh620g294j8xd1iv2&st=jhtqebi1&dl=1
+التيما ٢٠١٧
+https://www.dropbox.com/scl/fi/yjeroy8inuz3ljj81k8je/Altima_2017_KHwylD.zip?rlkey=yeai76v6qxwq3gbdrxkjhib30&st=uifve308&dl=1
 
 طبعا كل المواتر من مواقع وسيرفرات مونها نود لاند وسيرفرات ديسكورد وفيه سيرفرات نسيت اسمها ولا كان حطيت حقوقها🤍
 
