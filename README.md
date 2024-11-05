@@ -1,6 +1,7 @@
 # -
 تجميعه مواتر
 هايلكس https://modsfire.com/a67KRq8VHwR3jQL
+
 افضل مواتر عندي👇🏼
 
 كامري٢٠٠٤
@@ -68,10 +69,51 @@ https://www.dropbox.com/scl/fi/ew42xx651zmlruyhhssmz/carpark_yakuza4_am5.zip?rlk
 
 ماب توكسك
 https://www.mediafire.com/file/2zvq84d65320j6m
+
+ددسن
+https://www.dropbox.com/scl/fi/6lnh08kz2q3itt2tohxp7/warning_ddsn_-AM_modland.zip?rlkey=7sttrlj5dszt13pykcq9srorp&dl=1
+
+هايلكس من٢٠١٦الى٢٠٢٤
+https://www.dropbox.com/scl/fi/9ep1pmc7oicqhy1sdqgb3/Hilux_2016_KHwylD.zip?rlkey=l3bpwtkhjtg7vl4sdf1blgdqt&st=rq7kj7e2&dl=1
+
+ربع
+https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
+
+بوالين
+https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
+
+نيسان سفاري
+https://www.dropbox.com/scl/fi/ysrztbvpxe0cenedwbfea/PatrolY60_OmashidaKn0z_v20.zip?rlkey=2ksw3w64s3gms2agp3ksmpgw5&st=kjc2b8pl&dl=1
+
+سييرا١٥الى١٧
+https://www.dropbox.com/scl/fi/50hhwfrhvu0gvfmn6umtv/GMC-Sierra-2017-2015-V1.2.zip?rlkey=bdldxtts96idsqk255l9cwih2&st=fckbdx58&dl=1
+
+كروز
+https://www.dropbox.com/scl/fi/dcdbeasd1s8n12ntt3buq/cruze16.zip?rlkey=xccll7al4ehem9hjy5u9seq6o&st=dr4kfgrq&dl=1
+
+اكسنت١٦
+https://www.dropbox.com/scl/fi/zv0bojg15ajbauatb9hll/Hyundai_Accent_Solaris_16-17.zip?rlkey=xtx135ikwd9udnfwrgck51aas&st=qo3mcx4y&dl=1
+
+النترا٢٤/٢٥
+https://www.dropbox.com/scl/fi/dm0pgeh3ontm2ucyyx8ln/Hyundai-Elantra-2025-2024.zip?rlkey=a69l08vhv617201728xwdvj1b&st=ijys3vkt&dl=1
+
+زد
+https://www.dropbox.com/scl/fi/ed7bqrqt6g2db6s24ll66/k26_280zx.zip?rlkey=s042lsndsbce96fg9g6e08guf&st=qq4tuqmh&dl=1
+
+٨٢جيتي
+https://www.dropbox.com/scl/fi/bj5z5acne42t7hnylds1l/moh_gt81.zip?rlkey=aufvl44rafdyqtxat92h0gzz8&st=usxgkqdu&dl=1
+
+ماب عثيم سلي
+https://www.dropbox.com/scl/fi/8lzfviy8nt7eshn6qle08/3thim_AL_SLy.zip?rlkey=i2ot6d27w0tyeekxdj5599bj0&st=d0roamn7&dl=1
+
+ماب خويلد
+https://www.dropbox.com/scl/fi/xwwfbold0swcjmuqqk9h5/Othaim_Al-Sulay__iKhwyld.zip?rlkey=ofpwlenklyvqd01o7wtddyq1s&st=ksllhmt2&dl=1
+
+
 الباقي ماضمن كلهم يشتغلون
+
+
 كامري٦ 
-
-
 https://modsfire.com/g708a1c8n0V180j
 
 لاندكروزر 
