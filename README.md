@@ -486,6 +486,33 @@ https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo
 
 هلي غماره https://www.dropbox.com/scl/fi/5w2soquqvfsyuo813ngb2/AM-hulix.zip?rlkey=qrdil9u31te73icvbe2fwcil9&dl=1
 
+سوناتا 2014
+https://www.mediafire.com/file/d57o7a9pxmwy17w/sonata.zip/file
+
+هايلوكس غمارتين
+https://www.mediafire.com/file/z0lzmkd402zgpk6/Abo3Zmh_hilux_v1.zip/file
+
+مكسيما 2008
+https://www.mediafire.com/file/8xahcg48hdsv7mg/m7maxima.rar/file
+
+كابرس
+https://www.mediafire.com/file/qvmg21rboh2q8um/CapriceObaid.rar/file
+
+كامري 2011
+https://www.mediafire.com/file/yss63v01xr5e771/wLi_Camry2011.zip/file
+
+اوبتما
+https://www.mediafire.com/file/4q1y6fcvox1j9d3/OptimaTF_new.zip/file
+
+مكسيما 99
+https://www.mediafire.com/file/icg2xhalxt0uipl/MetoMaxima99.rar/file
+
+كامري 2005
+https://www.mediafire.com/file/x4z56x8ocfa52oa/wLi-Camry2005.zip/file
+
+نون
+https://www.mediafire.com/file/ls0aauc3vzw0n37/euvan.rar/file
+
 طبعا كل المواتر من مواقع وسيرفرات مونها نود لاند وسيرفرات ديسكورد وفيه سيرفرات نسيت اسمها ولا كان حطيت حقوقها🤍
 
 وبس انتضرو التحديثات
