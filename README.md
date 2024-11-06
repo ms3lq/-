@@ -668,6 +668,9 @@ https://www.dropbox.com/scl/fi/sp6rjdmfow5dj98ueupi4/Toyota-Camry-2004.zip?rlkey
 التيما ٢٠١٧
 https://www.dropbox.com/scl/fi/yjeroy8inuz3ljj81k8je/Altima_2017_KHwylD.zip?rlkey=yeai76v6qxwq3gbdrxkjhib30&st=uifve308&dl=1
 
+هلي خويلد
+https://drive.google.com/file/d/1FPi-JuOda1cEbC4XNaDjOBrB4t9GtKWs/view?usp=drivesdk
+
 طبعا كل المواتر من مواقع وسيرفرات مونها نود لاند وسيرفرات ديسكورد وفيه سيرفرات نسيت اسمها ولا كان حطيت حقوقها🤍
 
 وبس انتضرو التحديثات
