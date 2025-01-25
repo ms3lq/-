@@ -674,6 +674,11 @@ https://drive.google.com/file/d/1FPi-JuOda1cEbC4XNaDjOBrB4t9GtKWs/view?usp=drive
 شاص
 https://www.dropbox.com/scl/fi/bf8pd65j3teakttrcylkz/warning_cr.zip?rlkey=gchdlho9j1uiwcxc52e9xcug2&st=ybstamud&dl=1
 
+شارع البراميل
+https://www.dropbox.com/scl/fi/qsjk67hdikzx90xbkkjuo/albrameel.zip?rlkey=drs2nsqnzu38j8jj4hq3cr3u7&st=mmvoirxp&dl=1
+
+الانترا ٢٠٢٠
+https://www.dropbox.com/scl/fi/bxis5i65o4f2602ajvzgg/elantraad.zip?rlkey=3eeu4w76ie2gm9dyezioojvbw&st=aahmtaod&dl=1
 
 
 
