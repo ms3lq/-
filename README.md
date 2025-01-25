@@ -680,7 +680,14 @@ https://www.dropbox.com/scl/fi/qsjk67hdikzx90xbkkjuo/albrameel.zip?rlkey=drs2nsq
 الانترا ٢٠٢٠
 https://www.dropbox.com/scl/fi/bxis5i65o4f2602ajvzgg/elantraad.zip?rlkey=3eeu4w76ie2gm9dyezioojvbw&st=aahmtaod&dl=1
 
-
+جنسس ٢٠٢٠
+https://www.dropbox.com/scl/fi/qf6fo7s02b0f6b544qwoj/2020-Genesis-G90.zip?rlkey=sjz2hytb4ir2a92bbpzvq1lw6&st=tyvds0jb&dl=1
+كيا ٨ ٢٠٢٣
+https://www.dropbox.com/scl/fi/8hz01u1mpaauwm3rhq74g/Kia-K8-2023.zip?rlkey=5ckvpc51vw18hqsk2limemdf2&st=a6ewmx8h&dl=1
+كامري ٢٠٠٤
+https://www.dropbox.com/scl/fi/sp6rjdmfow5dj98ueupi4/Toyota-Camry-2004.zip?rlkey=m1eqw1johh620g294j8xd1iv2&st=jhtqebi1&dl=1
+التيما ٢٠١٧
+https://www.dropbox.com/scl/fi/yjeroy8inuz3ljj81k8je/Altima_2017_KHwylD.zip?rlkey=yeai76v6qxwq3gbdrxkjhib30&st=uifve308&dl=1
 
 
 
